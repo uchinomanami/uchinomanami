@@ -12,4 +12,4 @@
 
 ##  リンク
 
-- [ポートフォリオサイト](https://note.com/uchinomana)
+- [note](https://note.com/fond_chives1135)
